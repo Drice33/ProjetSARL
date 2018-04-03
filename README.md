@@ -2,6 +2,8 @@
 
 Chacun des documents de création de la SARL sont ici.
 
+Entreprise JAC SARL, SIRET : 765-208-947-46898, APE : 4652Z
+
 Groupe composé de :
 
 CANTELOUP Anthony
